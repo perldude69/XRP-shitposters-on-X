@@ -25,7 +25,7 @@ Last updated 30 August 2023
 | LordXRP                                                | @Bitforcoinz          | [Profile](https://x.com/Bitforcoinz)             |
 | Whale                                                  | @WhaleChart           | [Profile](https://x.com/WhaleChart)              |
 | WallStreetBulls                                        | @w_thejazz            | [Profile](https://x.com/w_thejazz)               |
-| XRP DROPZ                                              | @DROPZXRP             | [Profile](https://x.com/DROPZXRP)                |
+| ~~XRP DROPZ~~                                          | REMOVED               |                                                  |
 | GooP                                                   | @WGhoop               | [Profile](https://x.com/WGhoop)                  |
 | Chad Steingraber                                       | @ChadSteingraber      | [Profile](https://x.com/ChadSteingraber)         |
 | digitalassetbuy                                        | @digitalassetbuy      | [Profile](https://x.com/digitalassetbuy)         |
