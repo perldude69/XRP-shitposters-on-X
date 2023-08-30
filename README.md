@@ -2,7 +2,7 @@
 
 ## Purpose
 
-The purpose of this list is to identify Twitter accounts that frequently share or repost misinformation, outdated content, and clickbait about XRP or the XRPL. This list also includes bloggers who present themselves as journalists when there's enough evidence of them spreading this misinformation.
+The purpose of this list is to identify Twitter accounts that frequently share or repost misinformation, outdated content, and/or clickbait about XRP or the XRPL. This list also includes bloggers who present themselves as journalists when there's enough evidence of them spreading this misinformation.
 
 **Engagement Farming**: A practice where content is shared to encourage interaction (comments, likes, reposts) that in turn generates income or followers. This has become particularly prevalent within the XRP/XRPL community with platforms that pay for engagements.
 
