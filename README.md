@@ -17,7 +17,7 @@ Last updated 30 August 2023
 | Name                                                   | Twitter Handle        | Profile Link                                     |
 |--------------------------------------------------------|-----------------------|--------------------------------------------------|
 |  ***RECENTLY ADDED above here.***                      |                       |                                                  |
-| KINGVALEX                                              | @VALELORDX            | [Profile](https://x.com/VALEORDX)                |
+| KINGVALEX                                              | @VALELORDX            | [Profile](https://x.com/VALELORDX)                |
 | XRPLion1 -ΑΩ- "Messenger of GOD'S REVELATION"          | @XRPLion1             | [Profile](https://x.com/XRPLion1)                |
 | Crypto Hulk                                            | @CryptoHulk19         | [Profile](https://x.com/CryptoHulk19)            |
 | 🔥 BULL RUN WONKA 🔥 👉 XRP #XRPL $BTC #NFT #XRP      | @WillyWonkaXRP        | [Profile](https://x.com/WillyWonkaXRP)           |
