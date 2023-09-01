@@ -16,20 +16,20 @@ Last updated 30 August 2023
 
 | Name                                                   | Twitter Handle        | Profile Link                                     |
 |--------------------------------------------------------|-----------------------|--------------------------------------------------|
+|  ***RECENTLY ADDED above here.***                      |                       |                                                  |
 | KINGVALEX                                              | @VALELORDX            | [Profile](https://x.com/VALEORDX)                |
 | XRPLion1 -ΑΩ- "Messenger of GOD'S REVELATION"          | @XRPLion1             | [Profile](https://x.com/XRPLion1)                |
 | Crypto Hulk                                            | @CryptoHulk19         | [Profile](https://x.com/CryptoHulk19)            |
-| 🔥 BULL RUN WONKA 🔥 👉 XRP #XRPL $BTC #NFT #XRP      | @WillyWonkaXRP        | [Profile](https://x.com/WillyWonkaXRP)            |
+| 🔥 BULL RUN WONKA 🔥 👉 XRP #XRPL $BTC #NFT #XRP      | @WillyWonkaXRP        | [Profile](https://x.com/WillyWonkaXRP)           |
 | Zach Rector                                            | @ZachRector7          | [Profile](https://x.com/ZachRector7)             |
-| Ripple Van Winkle ! Crypto Researcher 🚀🚨            | @XRPNews_              | [Profile](https://x.com/XRPNews_ )               |
+| Ripple Van Winkle ! Crypto Researcher 🚀🚨            | @XRPNews_              | [Profile](https://x.com/XRPNews_ )              |
 | LordXRP                                                | @Bitforcoinz          | [Profile](https://x.com/Bitforcoinz)             |
 | Whale                                                  | @WhaleChart           | [Profile](https://x.com/WhaleChart)              |
 | WallStreetBulls                                        | @w_thejazz            | [Profile](https://x.com/w_thejazz)               |
 | GooP                                                   | @WGhoop               | [Profile](https://x.com/WGhoop)                  |
 | Chad Steingraber                                       | @ChadSteingraber      | [Profile](https://x.com/ChadSteingraber)         |
 | digitalassetbuy                                        | @digitalassetbuy      | [Profile](https://x.com/digitalassetbuy)         |
-|  ***RECENTLY ADDED above here.***                      |                       |                                                  |
-| EDO FARINA 🅧 XRP                                       | @edward_farina        | [Profile](https://x.com/edward_farina)           |
+| EDO FARINA 🅧 XRP                                       | @edward_farina        | [Profile](https://x.com/edward_farina)          |
 | Brett Hill                                             | @Brett_Crypto_X       | [Profile](https://x.com/Brett_Crypto_X)          |
 | Digital Assets Daily                                   | @AssetsDaily          | [Profile](https://x.com/AssetsDaily)             |
 | CryptoGeek                                             | @CryptoGeekNews       | [Profile](https://x.com/CryptoGeekNews)          |
@@ -37,8 +37,8 @@ Last updated 30 August 2023
 | Michael Branch                                         | @michael63140627      | [Profile](https://x.com/michael6314062)          |
 | Lord XRP                                               | @bitforcoinz          | [Profile](https://x.com/bitforcoinz)             |
 | Sir Kunt • Crypto & NFT                                | @sirkunt              | [Profile](https://x.com/sirkunt)                 |
-| xrpnews.crypto® ⚡️🐺                                   | @xrp334               | [Profile](https://x.com/xrp334)                 |
-| 𝕀ℕ                                                      | @ianbins              | [Profile](https://x.com/ianbins)                |
+| xrpnews.crypto® ⚡️🐺                                  | @xrp334               | [Profile](https://x.com/xrp334)                  |
+| 𝕀ℕ                                                     | @ianbins              | [Profile](https://x.com/ianbins)                 |
 | TheCryptoAlert                                         | @MyCryptoAlert        | [Profile](https://x.com/MyCryptoAlert)           |
 | Crypto Chairman                                        | @kelly_cryp40459      | [Profile](https://x.com/kelly_cryp40459)         |
 | XRP-Flare United                                       | @farshadrouhani5      | [Profile](https://x.com/farshadrouhani5)         |
@@ -51,10 +51,10 @@ Last updated 30 August 2023
 | Alex Cobb (XRP)                                        | @AlexCobb_            | [Profile](https://x.com/@AlexCobb_)              |
 | Digital PerspectivesPermaBull🪝                         | @DigPerspectives      | [Profile](https://x.com/DigPerspectives)         |
 | Lewis Jackson                                          | @cryptolewlew         | [Profile](https://x.com/cryptolewlew)            |
-| MASON VERSLUIS 🏆🔮                                     | @MasonVersluis      | [Profile](https://x.com/MasonVersluis)           |
+| MASON VERSLUIS 🏆🔮                                    | @MasonVersluis       | [Profile](https://x.com/MasonVersluis)           |
 | BULLZILLA                                              | @CKJCryptonews        | [Profile](https://x.com/CKJCryptonews)           |
 | Coach, JV                                              | @Coachjv_             | [Profile](https://x.com/Coachjv_)                |
-| ⚔️ XRP Avengers ⚔️                                     | @XRP_Avengers        | [Profile](https://x.com/XRP_Avengers)            |
+| ⚔️ XRP Avengers ⚔️                                    | @XRP_Avengers         | [Profile](https://x.com/XRP_Avengers)            |
 | Shannon Thorp                                          | @thorpshannon87       | [Profile](https://x.com/thorpshannon87)          |
 | 👑 𝕂𝕚𝕟𝕘 𝔻𝕠𝕘𝕘𝕠 👑                                     | @KingDoggoXRP         | [Profile](https://twitter.com/KingDoggoXRP)      |
 | 𝓐𝓶𝓮𝓵𝓲𝓮 🍭                                            | @_Crypto_Barbie       | [Profile](https://twitter.com/_Crypto_Barbie)    |
