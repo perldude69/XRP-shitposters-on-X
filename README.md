@@ -17,7 +17,7 @@ Last updated 30 August 2023
 | Name                                                   | Twitter Handle        | Profile Link                                     |
 |--------------------------------------------------------|-----------------------|--------------------------------------------------|
 |  ***RECENTLY ADDED above here.***                      |                       |                                                  |
-| onledger.net                                           | @offledger            | [Profile](https://x.com/offledger)               |
+| You                                                    | @            | [Profile](https://x.com/)               |
 
 To contribute to this list or raise concerns, please get in touch. Remember, the best way to stay off this list is to provide accurate and updated information. Do your research and ensure relevance before posting.
 
